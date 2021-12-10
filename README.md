@@ -1,1 +1,1 @@
-### Hi, I am Grant Holmes!
+## Check out my projects!
