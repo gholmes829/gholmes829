@@ -1,1 +1,1 @@
-## Hey there, glad you stopped by! Check out some of my favorite projects below:
+### Hey there, check out my projects below!
