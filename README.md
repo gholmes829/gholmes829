@@ -1,1 +1,1 @@
-### Hey there, check out my projects below!
+Check out my projects below!
